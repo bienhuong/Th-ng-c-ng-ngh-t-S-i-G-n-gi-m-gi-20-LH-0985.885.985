@@ -1,0 +1,2 @@
+# Th-ng-c-ng-ngh-t-S-i-G-n-gi-m-gi-20-LH-0985.885.985
+Thông Cống Nghẹt, Sài Gòn Giảm Giá 30% LH 0985.885.985 - 0902.106.105 - Thông cầu cống nghẹt. - Thông bồn cầu. UY TÍN – HIỆU QUẢ – CÓ BẢO HÀNH-PHỤC VỤ 24/24! Quy trình thông cống nghẹt giá rẻ chuyên nghiệp: + Tiếp nhận yêu cầu thông tắc cống qua điện thoại. + Khảo sát tình trạng tắc nghẹt của hệ thống cống. + Thiết bị tắc nghẽn. + Tình trạng tắc nghẽn. + Số lượng cống bị nghẹt. Nhanh gọn – sạch sẽ – xử lí triệt để.
